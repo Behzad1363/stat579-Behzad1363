@@ -1,4 +1,4 @@
 # stat579-Behzad1363
 My first Github respo
-sndl
 Hi~~ 
+I want another labor day hahaha
